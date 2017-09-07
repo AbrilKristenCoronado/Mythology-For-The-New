@@ -17,13 +17,24 @@ Apollo
 Artemis
 Hephaestus
 Aphrodite
-Hermes
+
+
+
+Hermes  
+
+https://i.pinimg.com/236x/1e/a5/4e/1ea54e85349a023d0fa57483fdb6b960--greek-pantheon-online-text.jpg
+
 Dionysus
+
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSVfMWRx42n35_78KElxlUnWkkXqRFa92040qYwABaxACmxuOt-
+
 Hades
-<img src="Hercules-br-disneyscreencaps_com-635.jp" width="100" height="150"/>
+
+https://greekgodsandgoddesses.net/wp-content/uploads/2014/09/hades.jpg
+
 Hypnos
 
-
+https://s-media-cache-ak0.pinimg.com/236x/a2/0e/49/a20e492d292c6b8c973f4add74c0d812--hades-the-romans.jpg
 
 Nike
 

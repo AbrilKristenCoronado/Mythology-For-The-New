@@ -1,5 +1,11 @@
 # Mythology-For-The-New
-Welcome to mythology! Here you will learn and study the mystery of Mythology
+<html>
+  <head>
+  </head>
+  <body>
+    <h2>Welcome to mythology! Here you will learn and study the mystery of Mythology</h2>
+  </body>
+  </html> 
 
 Zeus
 Hera
@@ -14,6 +20,7 @@ Aphrodite
 Hermes
 Dionysus
 Hades
+<img src="Hercules-br-disneyscreencaps_com-635.jp" width="100" height="150"/>
 Hypnos
 Nike
 Janus

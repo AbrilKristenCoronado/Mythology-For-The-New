@@ -1,10 +1,9 @@
 # Mythology-For-The-New
-Welcome to mythology! Here you will learn and study the mystery of Mythology
 -<html>
  -  <head>
  -  </head>
  -  <body>
- -    <h2>Welcome to mythology! Here you will learn and study the mystery of Mythology</h2>
+ -    <p><i><h2>Welcome to mythology! Here you will learn and study the mystery of Mythology</h2></i></p>
  -  </body>
  -  </html> 
  -

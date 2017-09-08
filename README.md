@@ -8,7 +8,8 @@
  -  </html> 
  -
  -Zeus
- -
+ -He is a thunder god
+ -He was going to get eaten but was replaced by a rock at birth
  -The God of the sky and ruler of all olyimpian gods.
  -https://upload.wikimedia.org/wikipedia/commons/c/c8/Jupiter_Smyrna_Louvre_Ma13.jpg
  -

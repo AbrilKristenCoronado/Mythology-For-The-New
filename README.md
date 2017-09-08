@@ -79,24 +79,30 @@ https://s-media-cache-ak0.pinimg.com/236x/a2/0e/49/a20e492d292c6b8c973f4add74c0d
 
 Nike
 
+The goddess that personafied victory.
 http://www.maicar.com/GML/000Images/nim/nike2026.jpg
 
 Janus
 
+The god of beginnings and transitions, thence also of gates, doors, doorways, endings and time.
 https://media1.britannica.com/eb-media/20/60120-004-8821AE7C.jpg
 
 Nemesis
 
+The goddess who enacted retribution against those who succumb to hubris 
 https://www.greekmythology.com/images/mythology/nemesis_40.jpg
 
 Iris
 
+The personification of the rainbow.
 http://www.theoi.com/image/P21.6BIris.jpg
 
 Hecate
 
+The goddess of magic and whichcraft
 http://mythmaniacs.com/heca001r.jpg
 
 Tyche
 
+The goddess of fortune and prosperity
 http://www.talesbeyondbelief.com/images/tyche-fortuna.jpg

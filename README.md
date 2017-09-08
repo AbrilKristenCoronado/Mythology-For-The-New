@@ -106,3 +106,5 @@ Tyche
 
 The goddess of fortune and prosperity
 http://www.talesbeyondbelief.com/images/tyche-fortuna.jpg
+
+These are only a handful of the  few gods and goddesses!

@@ -8,17 +8,44 @@
   </html> 
 
 Zeus
+
+https://upload.wikimedia.org/wikipedia/commons/c/c8/Jupiter_Smyrna_Louvre_Ma13.jpg
+
 Hera
+
+https://greekgodsandgoddesses.net/wp-content/uploads/2014/09/hera-622x1024.jpg
+
 Poseidon
+
+https://media1.britannica.com/eb-media/23/39023-004-DD172DD2.jpg
+
 Demeter
+
+https://i.pinimg.com/736x/c5/c2/9b/c5c29b110d2fb82512affddf39d4c01a--gods-and-goddesses-greek-gods.jpg
+
 Ares
+
+https://vignette.wikia.nocookie.net/greekmythology/images/1/1a/Ares%282%29x.jpg/revision/latest/scale-to-width-down/300?cb=20160918042457
+
 Athena
+
+http://www.theoi.com/image/S8.1Athene.jpg
+
 Apollo
+
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRKsMFZW0xKw9cTgsEgEbBH26Uf39PkiPMcLwxEfzEJwz0Q82mDVA
+
 Artemis
+
+http://www.theoi.com/image/S6.1Artemis.jpg
+
 Hephaestus
+
+https://greekgodsandgoddesses.net/wp-content/uploads/2014/09/hephaestus.jpg
+
 Aphrodite
 
-
+https://s-media-cache-ak0.pinimg.com/originals/33/32/03/3332031a21e198ca577e7cff9ca1747f.jpg
 
 Hermes  
 

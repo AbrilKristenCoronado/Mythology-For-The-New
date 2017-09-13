@@ -33,6 +33,7 @@
  -
  -Poseidon
  -
+  The god of the sea, earthquakes and horses.
  -https://media1.britannica.com/eb-media/23/39023-004-DD172DD2.jpg
  -
  -Demeter

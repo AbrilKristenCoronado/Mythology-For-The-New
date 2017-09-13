@@ -27,7 +27,7 @@
  -
  -Hera
  -
- -Wife of Zeus and goddess of ancient Greek Gods.
+ -One of Zeus's wives and goddess of ancient Greek Gods.
  -
  -https://greekgodsandgoddesses.net/wp-content/uploads/2014/09/hera-622x1024.jpg
  -
